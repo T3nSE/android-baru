@@ -1,1 +1,2 @@
-# android-baru
+#gunakan dengan bijak :)
+jangan salah pake
