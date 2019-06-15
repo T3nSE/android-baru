@@ -1,2 +1,2 @@
-#gunakan dengan bijak :)
-jangan salah pake
+kuy lah kita baku hantam
+jangan buat kejahatan cokkkkk
