@@ -1,2 +1,1 @@
-kuy lah kita baku hantam
-jangan buat kejahatan cokkkkk
+cok cok cok jancok kau semua
